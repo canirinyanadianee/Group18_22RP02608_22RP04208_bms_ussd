@@ -1,1 +1,1 @@
-# Group18_22RP02608_22RP04208_bms_ussd
+# UWIMPUHWE_CANIRINYANA_bms_mini_projects
